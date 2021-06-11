@@ -1,0 +1,1 @@
+# pagin-informatica-venta-pc
